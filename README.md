@@ -1,4 +1,4 @@
-![PICO_DJ_IDLE](https://github.com/user-attachments/assets/be4a626f-0866-49fd-b923-89578dcfdf25)![Nene_pixel_idle](https://github.com/user-attachments/assets/41eefb3b-9e65-445f-a5bc-c5c03f005175)
+![PICO_DJ_IDLE](https://github.com/user-attachments/assets/be4a626f-0866-49fd-b923-89578dcfdf25)![600px-Leak_8_Nene](https://github.com/user-attachments/assets/5ea1e91e-5694-46e3-9d5c-7a9f19fcbb60)
 
 Draw here -> https://27o1.straw.page 
 
