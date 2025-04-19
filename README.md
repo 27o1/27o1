@@ -1,5 +1,5 @@
-![PICO_DJ_IDLE](https://github.com/user-attachments/assets/be4a626f-0866-49fd-b923-89578dcfdf25)![600px-Leak_8_Nene](https://github.com/user-attachments/assets/5ea1e91e-5694-46e3-9d5c-7a9f19fcbb60)
+![Boyfriend_and_girlfriend_Die](https://github.com/user-attachments/assets/1f9bca5d-480f-4876-b1ee-580893160762)
 
-Draw here -> https://27o1.straw.page 
+Draw here -> https://27o1.straw.page
 
-![320px-Picoandneneidle](https://github.com/user-attachments/assets/a27229ec-cbe1-40ee-a59b-82ae2c72590f)
+![Picoandneneidle](https://github.com/user-attachments/assets/e8d39fe8-b00a-410a-8ace-621b4dee043c)
