@@ -1,6 +1,8 @@
-Online name: Arson
+•Online name: Arson / For Zev: Juno
 
-For Zev: Juno
+•I make nonsense (I am insane)
+
+•My sexuality is none of your business (I don't online date)
 
 ![Boyfriend_and_girlfriend_Die](https://github.com/user-attachments/assets/1f9bca5d-480f-4876-b1ee-580893160762)
 
