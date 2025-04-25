@@ -22,6 +22,6 @@ Draw here -> https://27o1.straw.page
 
 ![Picoandneneidle](https://github.com/user-attachments/assets/e8d39fe8-b00a-410a-8ace-621b4dee043c)
 
-Current work:
+Current work (I use finger on my old broken ahh phone)
 
 ![WhatsApp Görsel 2025-04-25 saat 13 56 48_8cab33f4](https://github.com/user-attachments/assets/40232554-e4cd-4d71-a6d0-1e400b4c9bf9)
