@@ -10,7 +10,7 @@
 
 •I hope I will play electro guitar in future.
 
-•Survived 10 earthquakes. Hope I don't die.
+•Survived 11 earthquakes. Hope I don't die.
 
 •Stuffy nose 7/24
 
