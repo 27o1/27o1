@@ -1,4 +1,4 @@
-[•Online name: Arson / For Zev: Juno]
+•Online name: Arson / For Zev: Juno
 
 •I make nonsense (I am insane)
 
