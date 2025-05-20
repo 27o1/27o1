@@ -2,7 +2,7 @@
 
 •I make nonsense (I am insane)
 
-•My sexuality is none of your business (I don't online date)
+•My sexuality doesn't matter. (I don't online date)
 
 •Fandoms: FNF, Pico's School
 
@@ -10,9 +10,9 @@
 
 •I hope I will play electro guitar in future.
 
-•Survived 11 earthquakes. Hope I don't die.
+•Survived 12 earthquakes. Hope I don't die.
 
-•Stuffy nose 7/24
+•I am turning 16 in halloween.
 
 ![Newgrounds_Audio_Portal_(Darnell)](https://github.com/user-attachments/assets/c39c718e-4eb8-4451-8b94-3829e2ab243a)
 
