@@ -14,12 +14,6 @@
 
 •Stuffy nose 7/24
 
-![Boyfriend_and_girlfriend_Die](https://github.com/user-attachments/assets/1f9bca5d-480f-4876-b1ee-580893160762)
+![Newgrounds_Audio_Portal_(Darnell)](https://github.com/user-attachments/assets/c39c718e-4eb8-4451-8b94-3829e2ab243a)
 
 Draw here -> https://27o1.straw.page
-
-![Picoandneneidle](https://github.com/user-attachments/assets/e8d39fe8-b00a-410a-8ace-621b4dee043c)
-
-Current work (I use finger on my old broken ahh phone)
-
-![WhatsApp Görsel 2025-04-25 saat 15 25 39_cb322ece](https://github.com/user-attachments/assets/0c3c5fda-690e-43a9-b8e2-e16ba419f8d3)
