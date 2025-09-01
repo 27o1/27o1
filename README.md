@@ -8,13 +8,11 @@
 
 •Yeah, I draw shit, anything. I can draw anything. Idk.
 
-•I hope I will play electro guitar in future.
-
-•Survived 12 earthquakes. Hope I don't die.
+•I hope I will play electro guitar in future. (I will never/lazy)
 
 •I am turning 16 in halloween.
 
-•My fav drink is monster. I prefer classic, it's so good damnnn...
+•My fav drink is lemonade.
 
 ![Newgrounds_Audio_Portal_(Darnell)](https://github.com/user-attachments/assets/c39c718e-4eb8-4451-8b94-3829e2ab243a)
 
