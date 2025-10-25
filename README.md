@@ -15,5 +15,3 @@
 •My fav drink is lemonade.
 
 ![Newgrounds_Audio_Portal_(Darnell)](https://github.com/user-attachments/assets/c39c718e-4eb8-4451-8b94-3829e2ab243a)
-
-Draw here -> https://27o1.straw.page
