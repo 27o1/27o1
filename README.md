@@ -10,7 +10,7 @@
 
 •I hope I will play electro guitar in future. (I will never/lazy)
 
-•I am turning 16 in halloween.
+•I am turning 16 in 31 Oct.
 
 •My fav drink is lemonade.
 
