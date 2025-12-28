@@ -10,7 +10,7 @@
 
 •Yeah, I draw shit, anything. I can draw anything. Idk.
 
-•I hope I will play electro guitar in future. (I will never/lazy)
+•I want to learn coding and be a game dev.
 
 •I am 16.
 
