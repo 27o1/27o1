@@ -1,3 +1,5 @@
+"I've accomplished nothing with my life."
+
 •Online name: Arson / For Zev: Juno
 
 •I make nonsense (I am insane)
