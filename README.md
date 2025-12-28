@@ -4,7 +4,7 @@
 
 •I make nonsense most of the time, may act funny and idiotic but I'm not stupid.
 
-•My sexuality doesn't matter. (I don't online date)
+•My sexuality doesn't matter. (I don't online date) I flirth with everyone. (If I flirth A LOT with you I like your company)
 
 •Fandoms: FNF, Pico's School
 
