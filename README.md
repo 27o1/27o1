@@ -2,7 +2,7 @@
 
 •Online name: Arson / For Zev: Juno
 
-•I make nonsense (I am insane)
+•I make nonsense most of the time, may act funny and idiotic but I'm not stupid.
 
 •My sexuality doesn't matter. (I don't online date)
 
